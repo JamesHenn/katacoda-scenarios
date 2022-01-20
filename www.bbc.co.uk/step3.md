@@ -1,3 +1,3 @@
 Step 3
 
-You kis and hold her tightly
+You kiss and hold her tightly
